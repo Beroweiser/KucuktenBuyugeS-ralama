@@ -1,0 +1,2 @@
+# KucuktenBuyugeS-ralama
+proje
